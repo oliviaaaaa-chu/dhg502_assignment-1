@@ -1,10 +1,5 @@
 How the Official History Frames Donglin (東林) as a Political Faction to Be Persecuted
 
-CHU ManDigi Approach in Hist Research
-3140930
-Digi Approach in Hist Research
-13th Oct, 2026
-
 Introduction 
 
 Official historical records are responsible for recording events; in addition, they use different wording to shape personal reputations, assign blame, and describe events. In this essay, it will be discussed whether the official history, Mingshi (明史), represents Donglin (東林) primarily as a target of persecution as a political faction rather than merely as a school. By using two qhchina collocate runs and their related data and the content of Mingshi, I will show in this paper that although Mingshi preserves the traces of the academic origins of Donglin, the collocation results strongly show party-labelling and punitive verbs, thereby framing Donglin as a politicised target of persecution.
