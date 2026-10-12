@@ -1,6 +1,4 @@
-# dhg502_assignment-1 
-
-Chu Man 3140930
+# DHG502_assignment-1 
 
 ## Context of Work
 Research Question:
